@@ -1,4 +1,4 @@
-# 
+# مميز bot اكتشاف الاختراق سكريبتات for Mac OS | نخبة bot اكتشاف الاختراق سكريبتات for PC Windows. Featuring تحليل الزخم and مجموعات السيولة DEX — optimized for maximum performance.
 
 
 
